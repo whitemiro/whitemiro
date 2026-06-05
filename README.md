@@ -3,4 +3,7 @@
  <img width="728" height="410" alt="image" src="https://github.com/user-attachments/assets/a86dc272-9b79-44b7-a6d2-6ba0a414bffa" />
 
 
-### <p align="center"> [strawpage](https://somniro.straw.page/) / [ata](https://somniro.atabook.org)
+### <p align="center"> [STRAWPAGE](https://somniro.straw.page/)   |   [ATA](https://somniro.atabook.org)
+
+<p align="center">
+before you interact with me, I have constant mood swings,, but I'm always happy to have someone c + h by my side!
