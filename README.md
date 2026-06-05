@@ -7,5 +7,4 @@
 
 <p align="center">
 before you interact with me, I have constant mood swings, often being quiet or choosing not to talk but I'm always happy to have someone by my side!
-
-![trans](<img width="498" height="65" alt="image" src="https://github.com/user-attachments/assets/e4b04130-c86e-4e7c-b538-161c469ff601" />)
+![trans](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExeDQ5d2VwZHowNGl4N3U4a3MxdXN6NGVmb2E4dXJrcWNkdTh0M3Y4YyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/NrbmvMpOJgZ4kYAfQp/giphy.gif)
