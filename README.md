@@ -8,4 +8,5 @@
 <p align="center">
 before you interact with me, I have constant mood swings, often being quiet or choosing not to talk but I'm always happy to have someone by my side!
   
-![trans](https://media4.giphy.com/media/v1.Y2lkPTc5MGI3NjExeDQ5d2VwZHowNGl4N3U4a3MxdXN6NGVmb2E4dXJrcWNkdTh0M3Y4YyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/NrbmvMpOJgZ4kYAfQp/giphy.gif) ![phight](https://i.ibb.co/0JkM55p/pixil-gif-drawing-1.gif)
+![trans](<div class="tenor-gif-embed" data-postid="22702097" data-share-method="host" data-aspect-ratio="7.62" data-width="100%"><a href="https://tenor.com/view/transgender-pride-lgbtq-blinkie-blinkies-gif-22702097">Transgender Pride GIF</a>from <a href="https://tenor.com/search/transgender-gifs">Transgender GIFs</a></div> <script type="text/javascript" async src="https://tenor.com/embed.js"></script>) 
+![phight](https://i.ibb.co/0JkM55p/pixil-gif-drawing-1.gif) 
