@@ -16,4 +16,4 @@ before you interact with me, I have constant mood swings, often being quiet or c
 ![napo](https://64.media.tumblr.com/09cf01da68c137cb53e8e3132f89e5e3/689a9230230c8a02-e2/s250x400/d2a09b0ac26e46c3e32bd9ffb85dfb3b974520fd.gifv)
 ![sara](https://64.media.tumblr.com/f5ba768560f0b48682a04b03b4c4fec8/91f6c146247f4079-3c/s250x400/166acc25c510375d59b9449483ebfcb68ebdc120.gifv)
 ![kana](https://64.media.tumblr.com/212b4039c900ae43f2a4512c0e13df74/1b1a84f920fc0707-ea/s250x400/ff8520bd43ef78dd14fe264422f896c60732c8bd.gifv)
-![spoke](https://www.tumblr.com/l0ck-4nd-k3yy/809760032931659776/do-you-have-spokeishere-nlinkies)
+![spoke](https://64.media.tumblr.com/e3915d8ea18805a4fb68827976cf73ac/c737b3ec301e5463-0b/s250x400/081115e56def98c531dd35a8a804523c5e097498.gifv)
