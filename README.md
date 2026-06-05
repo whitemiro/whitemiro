@@ -8,5 +8,4 @@
 <p align="center">
 before you interact with me, I have constant mood swings, often being quiet or choosing not to talk but I'm always happy to have someone by my side!
 
-![trans](<img width="498" height="65" alt="image" src="https://github.com/user-attachments/assets/e4b04130-c86e-4e7c-b538-161c469ff601" />
-)
+![trans](<img width="498" height="65" alt="image" src="https://github.com/user-attachments/assets/e4b04130-c86e-4e7c-b538-161c469ff601" />)
