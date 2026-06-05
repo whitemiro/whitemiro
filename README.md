@@ -7,3 +7,5 @@
 
 <p align="center">
 before you interact with me, I have constant mood swings, often being quiet or choosing not to talk but I'm always happy to have someone by my side!
+
+<img width="150" height="20" alt="image" src="https://github.com/user-attachments/assets/ad407bf1-bacf-4842-b2c1-e6540c8ebc07" />  <img width="220" height="30" alt="image" src="https://github.com/user-attachments/assets/8ed0721d-f666-4503-af1b-d1e430fbdb30" />
