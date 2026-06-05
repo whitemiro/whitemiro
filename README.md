@@ -8,5 +8,5 @@
 <p align="center">
 before you interact with me, I have constant mood swings, often being quiet or choosing not to talk but I'm always happy to have someone by my side!
   
-![trans](https://media.tenor.com/wZIqVXGXHhgAAAAM/transgender-pride.gif) 
-![phight](https://i.ibb.co/0JkM55p/pixil-gif-drawing-1.gif) 
+![trans](https://64.media.tumblr.com/52110f99a2b9ff2e0b66ad7bedc1b504/2000e1f7ff722967-c5/s250x400/7fafdd3c7e48a90cd109d16fc360aa3e39510a4f.gifv) 
+![phight](https://www.tumblr.com/rubysundaey/741710139381432320/got-bored-a-few-days-ago-and-decided-to-make) 
