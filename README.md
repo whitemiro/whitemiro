@@ -8,4 +8,4 @@
 <p align="center">
 before you interact with me, I have constant mood swings, often being quiet or choosing not to talk but I'm always happy to have someone by my side!
 
-![hippo](https://media1.tenor.com/m/wZIqVXGXHhgAAAAC/transgender-pride.gif)
+![til](https://media1.tenor.com/m/wZIqVXGXHhgAAAAC/transgender-pride.gif)
