@@ -10,7 +10,6 @@ before you interact with me, I have constant mood swings, often being quiet or c
   
 ![trans](https://64.media.tumblr.com/52110f99a2b9ff2e0b66ad7bedc1b504/2000e1f7ff722967-c5/s250x400/7fafdd3c7e48a90cd109d16fc360aa3e39510a4f.gifv) 
 ![phight](https://64.media.tumblr.com/01edec1441288d10d3655b593d2643f0/950e7288dc135728-bc/s250x400/771ae0e155f6cdd9f81bcae805fd4c7b46a8436e.gifv) 
-![chara](https://64.media.tumblr.com/be89ce54e136454cdffd2c5e191b8f60/63452e79f55135a3-d7/s400x600/03a9cf4195bddef03dd8a14f6b21818d679e7e9c.gifv)
 ![chara](https://64.media.tumblr.com/a31fa4fab8243f91e13d6efe5e5061d8/tumblr_pvixa9cLr21xg398ho2_250.gifv)
 ![limbus](https://64.media.tumblr.com/284a504e543977a330ab4255d333a2b5/aa8be032fbce7214-47/s250x400/fc1c83dc6dd84fbd3373042f165fa3f09f025b66.gifv)
 ![don](https://64.media.tumblr.com/d1a3023bc88c3839cb4221dc1b89882e/185df5bf3816fa53-e9/s250x400/18d1213b2ff09b7488439c3c6fdc904c07e5018b.gifv)
