@@ -6,4 +6,4 @@
 ### <p align="center"> [STRAWPAGE](https://somniro.straw.page/)   |   [ATA](https://somniro.atabook.org)
 
 <p align="center">
-before you interact with me, I have constant mood swings,, but I'm always happy to have someone c + h by my side!
+before you interact with me, I have constant mood swings, often being quiet or choosing not to talk but I'm always happy to have someone by my side!
