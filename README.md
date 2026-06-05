@@ -8,5 +8,5 @@
 <p align="center">
 before you interact with me, I have constant mood swings, often being quiet or choosing not to talk but I'm always happy to have someone by my side!
   
-![trans](https://tenor.com/view/transgender-pride-lgbtq-blinkie-blinkies-gif-22702097) 
+![trans](https://media.tenor.com/wZIqVXGXHhgAAAAM/transgender-pride.gif) 
 ![phight](https://i.ibb.co/0JkM55p/pixil-gif-drawing-1.gif) 
