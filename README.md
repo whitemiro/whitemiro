@@ -18,4 +18,4 @@ before you interact with me, I have constant mood swings, often being quiet or c
 ![kana](https://64.media.tumblr.com/212b4039c900ae43f2a4512c0e13df74/1b1a84f920fc0707-ea/s250x400/ff8520bd43ef78dd14fe264422f896c60732c8bd.gifv)
 ![spoke](https://64.media.tumblr.com/e3915d8ea18805a4fb68827976cf73ac/c737b3ec301e5463-0b/s250x400/081115e56def98c531dd35a8a804523c5e097498.gifv)
 ![smp](https://64.media.tumblr.com/3aa075c0dfd51bde5ba98193277d58f0/284fc568890d6f14-93/s400x600/6aedfedef29dcdf63639db072b4373c762a9cc88.gifv)
-![psycho](https://64.media.tumblr.com/f0dbaa7af383eeda50de30310ff23392/ba73a472054dd749-c9/s250x400/acc32e6ceaab83d440ba76e1093ac70629b84394.gifv)
+![psycho](https://64.media.tumblr.com/80ee97cf8d0e1e27885f6c265885217c/ba73a472054dd749-c0/s100x200/7f8d7a206cd80b7f6309317532aa2b9dc6020605.pnj)
