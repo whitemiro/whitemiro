@@ -23,4 +23,4 @@ before you interact with me, I have constant mood swings, often being quiet or c
 ![miku](https://64.media.tumblr.com/df630c015f58aac2950affa4fb4e6cf3/a722a8ddfbab1bcd-1f/s100x200/331fd5951bcceebeaf766faf3e1c215ce0d93ff0.pnj)
 ![chamber](https://64.media.tumblr.com/abfe5254a42c6583941f58110a6d2663/326855989d91ee73-26/s250x400/8427ad2867e451d9ebdffd069a107989ca09098f.webp)
 ![dottore](https://64.media.tumblr.com/0308734c65435930cb78160501393450/26d6539201c78072-a2/s250x400/44dfb51c14475271c951b3aa4cd4abd909268f4d.gifv)
-![blade](https://64.media.tumblr.com/364840233df3a0d814dcb3ba91d2c5e2/949bbef93836bd9a-95/s400x600/1b20d814147b510e21545f865bbfdc10c09fcc78.gifv)
+![blade](https://64.media.tumblr.com/9bf7d585f907e1affeda407ececfd5cc/ce0aac468e4f00d7-d4/s100x200/1213efcc09a6672d9398a78816511f7105a77789.gifv)
