@@ -9,6 +9,6 @@
 before you interact with me, I have constant mood swings, often being quiet or choosing not to talk but I'm always happy to have someone by my side!
 
 <p align="center">
-(<img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/15b3755d-6867-43e0-89a5-bd2d8e152efb" />)
+<img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/15b3755d-6867-43e0-89a5-bd2d8e152efb" />
 
 
