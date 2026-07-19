@@ -1,6 +1,6 @@
 ## <p align="center"> " Remember health comes first! "
 
-<p align="center"> <img width="728" height="470" alt="image" src="https://cdn.discordapp.com/attachments/1007555492589088831/1528388359402033224/Untitled143_20260719210210.png?ex=6a5e1e14&is=6a5ccc94&hm=c90163ff69e6df673e5f415aa81cbe3d2466e0bd6b36ee2126eae70069504e78&" />
+<p align="center"> <img width="728" height="460" alt="image" src="https://cdn.discordapp.com/attachments/1007555492589088831/1528388359402033224/Untitled143_20260719210210.png?ex=6a5e1e14&is=6a5ccc94&hm=c90163ff69e6df673e5f415aa81cbe3d2466e0bd6b36ee2126eae70069504e78&" />
 
 
 ### <p align="center"> [STRAWPAGE](https://somniro.straw.page/)   |   [ATA](https://somniro.atabook.org)
