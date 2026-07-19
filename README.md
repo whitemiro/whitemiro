@@ -7,6 +7,7 @@
 
 <p align="center">
 before you interact with me, I have constant mood swings, often being quiet or choosing not to talk but I'm always happy to have someone by my side!
+  
 I LOVEEEE LAUMA , BAIZHU , DOTTORE , AETHER , LUMINE , NEFER , FLINS , RERIR , QIQI SOO MUCH COME SIT NEXT TO ME IF YOURE THEM HEHEHE >_<
 
 <p align="center"> 
