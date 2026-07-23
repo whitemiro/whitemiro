@@ -1,7 +1,6 @@
 ## <p align="center"> " Remember health comes first! "
 
-<p align="center"> <img width="728" height="460" alt="image" src="<img width="1920" height="1080" alt="Untitled143_20260719210210" src="https://github.com/user-attachments/assets/60f32df4-f6d2-4f19-b329-7b3cde5c363f"
-" />
+<p align="center"> <img width="1920" height="1080" alt="image" src="https://github.com/user-attachments/assets/231e0c7f-af44-4c78-8ec7-0e35c87525bc" />
 
 
 ### <p align="center"> [STRAWPAGE](https://somniro.straw.page/)   |   [ATA](https://somniro.atabook.org)
