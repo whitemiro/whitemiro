@@ -13,4 +13,4 @@
 <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/81c6389c-36b0-4811-8ba9-96199d352224" />
 <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/06e86505-3022-4b22-b756-99b755148e00" />
 
-<p align="center">  !! ALL IMAGE CRED TO lumnihs118690 ON TWT !!
+<p align="center">  !! ARTS CRED TO lumnihs118690 ON TWT !!
