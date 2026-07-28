@@ -1,6 +1,6 @@
 ## <p align="center"> " AIGHT BET "
 
-<p align="center"> <img width="948" height="683" alt="image" src="https://github.com/user-attachments/assets/6353c32c-fe5d-4dc1-ae75-c1656aca1c33" />
+<p align="center"> <img width="848" height="683" alt="image" src="https://github.com/user-attachments/assets/6353c32c-fe5d-4dc1-ae75-c1656aca1c33" />
 
 
 ### <p align="center"> [STRAWPAGE](https://somniro.straw.page/)   |   [ATA](https://somniro.atabook.org)
