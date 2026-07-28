@@ -1,6 +1,6 @@
 ## <p align="center"> " AIGHT BET "
 
-<p align="center"> <img width="2048" height="1683" alt="image" src="https://github.com/user-attachments/assets/6353c32c-fe5d-4dc1-ae75-c1656aca1c33" />
+<p align="center"> <img width="1048" height="683" alt="image" src="https://github.com/user-attachments/assets/6353c32c-fe5d-4dc1-ae75-c1656aca1c33" />
 
 
 ### <p align="center"> [STRAWPAGE](https://somniro.straw.page/)   |   [ATA](https://somniro.atabook.org)
@@ -13,4 +13,4 @@
 <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/81c6389c-36b0-4811-8ba9-96199d352224" />
 <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/06e86505-3022-4b22-b756-99b755148e00" />
 
-- ALL IMAGE CRED TO lumnihs118690 ON TWT! -
+<p align="center">  !! ALL IMAGE CRED TO lumnihs118690 ON TWT !!
