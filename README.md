@@ -3,7 +3,7 @@
 <p align="center"> <img width="848" height="683" alt="image" src="https://github.com/user-attachments/assets/6353c32c-fe5d-4dc1-ae75-c1656aca1c33" />
 
 
-### <p align="center"> [STRAWPAGE](https://somniro.straw.page/)   |   [ATA](https://somniro.atabook.org)
+### <p align="center"> [STRAWPAGE](https://groxiro.straw.page)   |   [ATA](https://somniro.atabook.org)
 
 <p align="center"> I'm not very talkative myself, although I DO love when YOU sit with me !!
   even if im alone even if im sitting with someone, you're welcomed.. 
