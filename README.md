@@ -4,8 +4,7 @@
   
 ### <p align="center"> [STRAWPAGE](https://groxiro.straw.page)   |   [ATA](https://somniro.atabook.org)
 
-<p align="center"> I'm not very talkative myself, although I DO love when YOU sit with me !!
-  even if im alone even if im sitting with someone, you're welcomed.. 
+<p align="center"> Hello! I like to stay near people I know , or people who have c + h in their name. I tend to hide behind people when I'm upset or just don't wanna bother talking to people,,  
   
 <p align="center">  you can refer me as the pony I am ! I don't mind at all ;;
   
@@ -16,5 +15,3 @@
 <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/15b3755d-6867-43e0-89a5-bd2d8e152efb" />
 <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/81c6389c-36b0-4811-8ba9-96199d352224" />
 <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/06e86505-3022-4b22-b756-99b755148e00" />
-
-<p align="center">  !! ARTS CRED TO lumnihs118690 ON TWT !!
