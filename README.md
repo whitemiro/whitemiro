@@ -1,9 +1,7 @@
 ## <p align="center"> " Welcome manager ! "
 
-<p align="center"> <img width="1512" height="269" alt="image" src="https://github.com/user-attachments/assets/b8ae25d1-7671-477b-a1d8-b24fc72006f2" />
-
-
-
+<p align="center"> <img width="1500" height="268" alt="image" src="https://github.com/user-attachments/assets/3b09603b-86f5-4a90-8bd7-451c2a914573" />
+  
 ### <p align="center"> [STRAWPAGE](https://groxiro.straw.page)   |   [ATA](https://somniro.atabook.org)
 
 <p align="center"> I'm not very talkative myself, although I DO love when YOU sit with me !!
