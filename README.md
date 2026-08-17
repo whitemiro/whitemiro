@@ -1,6 +1,7 @@
-## <p align="center"> " AIGHT BET "
+## <p align="center"> " Welcome manager ! "
 
-<p align="center"> <img width="848" height="683" alt="image" src="https://github.com/user-attachments/assets/6353c32c-fe5d-4dc1-ae75-c1656aca1c33" />
+<p align="center"> <img width="1512" height="269" alt="image" src="https://github.com/user-attachments/assets/b8ae25d1-7671-477b-a1d8-b24fc72006f2" />
+
 
 
 ### <p align="center"> [STRAWPAGE](https://groxiro.straw.page)   |   [ATA](https://somniro.atabook.org)
