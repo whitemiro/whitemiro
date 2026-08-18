@@ -1,6 +1,7 @@
 ## <p align="center"> " Welcome manager ! "
 
-<p align="center"> <img width="1500" height="268" alt="image" src="https://github.com/user-attachments/assets/3b09603b-86f5-4a90-8bd7-451c2a914573" />
+<p align="center"> <img width="1509" height="276" alt="image" src="https://github.com/user-attachments/assets/7387940d-20b1-4d2c-88b8-cc45393c5d84" />
+
   
 ### <p align="center"> [STRAWPAGE](https://groxiro.straw.page)   |   [ATA](https://somniro.atabook.org)
 
