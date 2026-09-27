@@ -16,4 +16,4 @@
 <img width="198" height="112" alt="image" src="https://github.com/user-attachments/assets/81c6389c-36b0-4811-8ba9-96199d352224" />
 
 <p align="center"> Have you seen my son? Please tell him to return home to his papa ,, :(
-<p align="center"> <img width="493" height="520" alt="image" src="https://github.com/user-attachments/assets/fe1e7f4c-2506-447a-8dbb-ac5985d93967" />
+<p align="center"> <img width="293" height="320" alt="image" src="https://github.com/user-attachments/assets/fe1e7f4c-2506-447a-8dbb-ac5985d93967" />
